@@ -1,16 +1,21 @@
-### Hi there 👋
+### Hola mi nombre es Mauricio 👋
 
-<!--
-**Mauricioesro/Mauricioesro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+*Les hablaré un poco de lo que me gusta:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+👪 Me gusta mucho pasar el tiempo con mi familia
+
+🎦 Me gusta ver muchas peliculas y series
+
+⚽ Me gusta mucho jugar futbol y verlo con mis amigos
+
+🎮 Me gusta jugar videojuegos
+
+      1.FIFA
+      
+      2.FORTNITE
+      
+      3.GTA
+
+
+
